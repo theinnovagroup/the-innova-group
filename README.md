@@ -29,3 +29,4 @@ For official inquiries or business information, visit the company website above.
 The Innova Group company overview, The Innova Group services, The Innova Group business information, The Innova Group professional services
 https://medium.com/@hr_19939/the-innova-group-company-overview-services-and-business-focus-6311b11ce889
 https://www.youtube.com/channel/UCvAE1Ou0fq2HXaaw_R41rrw
+https://issuu.com/innovagroup/docs/the_innova_group_company_overview_and_services
