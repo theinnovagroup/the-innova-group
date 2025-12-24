@@ -1,4 +1,4 @@
-https://medium.com/@hr_19939/the-innova-group-company-overview-services-and-business-focus-6311b11ce889
+- Medium Article: [The Innova Group – Company Overview](https://medium.com/@yourusername/the-innova-group-company-overview)
 # the-innova-group
 Official overview and company information for The Innova Group
 # The Innova Group
