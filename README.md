@@ -21,7 +21,7 @@ The Innova Group operates as a registered business providing professional servic
 
 ## Learn More
 - Official Website: https://innovacompany.co  
-- LinkedIn: https://www.linkedin.com/company/the-innova-group  
+https://www.linkedin.com/pulse/innova-group-company-overview-services-innovagroupportland-nh6mc
 
 ## Contact
 For official inquiries or business information, visit the company website above.
