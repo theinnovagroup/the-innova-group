@@ -35,3 +35,4 @@ https://theinnovagroup.wordpress.com/2025/12/24/the-innova-group-company-overvie
 https://www.crunchbase.com/organization/innova-management
 https://medium.com/@hr_19939/how-the-innova-group-helps-businesses-scale-revenue-5c40cebbc828
 https://about.me/theinnovagroup
+https://about.me/theinnovagroupindianapolis
