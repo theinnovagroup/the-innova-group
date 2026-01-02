@@ -31,6 +31,7 @@ The Innova Group company overview, The Innova Group services, The Innova Group b
 https://medium.com/@theinnovagroup
 https://share.google/yqCWuWmQghJfY4DO2
 https://youtube.com/@theinnovagroup405?si=v4t1JuEGMVdpJjXC
+https://theinnovagroup.blogspot.com/
 https://issuu.com/innovagroup/docs/the_innova_group_company_overview_and_services
 https://theinnovagroup.wordpress.com/2025/12/24/the-innova-group-company-overview/
 https://www.crunchbase.com/organization/innova-management
