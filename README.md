@@ -22,18 +22,20 @@ The Innova Group operates as a registered business providing professional servic
 
 ## Learn More
 - Official Website: https://innovacompany.co  
-https://www.linkedin.com/pulse/innova-group-company-overview-services-innovagroupportland-nh6mc
+https://www.linkedin.com/company/innovagroupportland
 
 ## Contact
 For official inquiries or business information, visit the company website above.
 ## Keywords
 The Innova Group company overview, The Innova Group services, The Innova Group business information, The Innova Group professional services
-https://medium.com/@hr_19939/the-innova-group-company-overview-services-and-business-focus-6311b11ce889
+https://medium.com/@theinnovagroup
 https://youtube.com/@theinnovagroup405?si=v4t1JuEGMVdpJjXC
 https://issuu.com/innovagroup/docs/the_innova_group_company_overview_and_services
 https://theinnovagroup.wordpress.com/2025/12/24/the-innova-group-company-overview/
 https://www.crunchbase.com/organization/innova-management
-https://medium.com/@hr_19939/how-the-innova-group-helps-businesses-scale-revenue-5c40cebbc828
+https://medium.com/@theinnovagroup/how-the-innova-group-helps-businesses-scale-revenue-5c40cebbc828
 https://about.me/theinnovagroup
 https://about.me/theinnovagroupindianapolis
 https://theinnovagroup.blogspot.com/2025/12/the-innova-group-driving-business.html?m=1
+https://medium.com/@theinnovagroup/how-the-innova-group-is-powering-amazon-business-expansion-across-indiana-and-the-midwest-a518c59e1526
+https://medium.com/@theinnovagroup/the-innova-group-company-overview-services-and-business-focus-6311b11ce889
