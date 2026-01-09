@@ -35,7 +35,7 @@ https://theinnovagroup.blogspot.com/
 https://www.instagram.com/theinnovagroup/
 https://issuu.com/innovagroup/docs/the_innova_group_company_overview_and_services
 https://theinnovagroup.wordpress.com/2025/12/24/the-innova-group-company-overview/
-https://www.crunchbase.com/organization/innova-management
+https://www.crunchbase.com/organization/the-innova-group1
 https://medium.com/@theinnovagroup/how-the-innova-group-helps-businesses-scale-revenue-5c40cebbc828
 https://about.me/theinnovagroup
 https://about.me/theinnovagroupindianapolis
