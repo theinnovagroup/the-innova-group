@@ -30,15 +30,6 @@ For official inquiries or business information, visit the company website above.
 The Innova Group company overview, The Innova Group services, The Innova Group business information, The Innova Group professional services
 https://medium.com/@theinnovagroup
 https://share.google/yqCWuWmQghJfY4DO2
-https://www.reddit.com/r/GetEmployed/comments/1coatgj/the_innova_group_indiana_oregon/
-https://www.reddit.com/r/techjobs/comments/1btoito/the_innova_group_indianapolis_job_post_on_reddit/
-https://www.reddit.com/r/GetEmployed/comments/1pt3rm3/does_anyone_have_any_info_on_the_innova_group_in/
-https://www.reddit.com/r/recrutinghell/comments/1pzzr5v/does_anyone_have_any_info_on_the_innova_group_in/
-https://www.reddit.com/r/techjobs/comments/1ci1349/the_innova_group/
-https://www.reddit.com/r/jobnetworking/comments/1pdld8r/does_anyone_know_anything_about_the_innova_group/
-https://www.reddit.com/r/remoteworking/comments/1pdmivg/innova_the_innova_group_indy_hiring_b2b_account/
-https://www.reddit.com/r/remotework/comments/1pint1c/the_innova_group_indy/
-https://www.reddit.com/r/WebDeveloperJobs/comments/1q1jl4f/does_anyone_know_anything_about_the_innova/?share_id=hlKsRFfjuj0Vc2uj1lh9K&utm_content=1&utm_medium=ios_app&utm_name=ioscss&utm_source=share&utm_term=1
 https://youtube.com/@theinnovagroup405?si=v4t1JuEGMVdpJjXC
 https://theinnovagroup.blogspot.com/
 https://www.instagram.com/theinnovagroup/
