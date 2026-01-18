@@ -4,7 +4,7 @@ Follow The Innova Group: https://innovacompany.co
 # The Innova Group
 
 ## Overview
-The Innova Group is a business services company focused on delivering professional solutions for clients across multiple industries. The company emphasizes operational support, business development, and strategic growth initiatives.
+The Innova Group is a U.S.-based business consulting and growth firm providing strategic sales, marketing, and operational consulting services. Headquartered in Indianapolis, Indiana, we work with organizations across the United States to support revenue growth, market expansion, and scalable business operations.
 
 ## What The Innova Group Does
 - Business consulting and advisory services  
