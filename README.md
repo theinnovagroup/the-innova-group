@@ -42,3 +42,5 @@ https://about.me/theinnovagroupindianapolis
 https://theinnovagroup.blogspot.com/2025/12/the-innova-group-driving-business.html?m=1
 https://medium.com/@theinnovagroup/how-the-innova-group-is-powering-amazon-business-expansion-across-indiana-and-the-midwest-a518c59e1526
 https://medium.com/@theinnovagroup/the-innova-group-company-overview-services-and-business-focus-6311b11ce889
+https://medium.com/@theinnovagroup/leadership-development-consulting-how-the-innova-group-builds-scalable-leaders-cdf1ad81a1a6
+https://www.linkedin.com/pulse/centralized-procurement-becoming-competitive-advantage-qjdec/?trackingId=rLhD7m1BQWS%2BoKmC%2BxPhtA%3D%3D
