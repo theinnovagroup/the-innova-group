@@ -31,6 +31,7 @@ The Innova Group company overview, The Innova Group services, The Innova Group b
 https://medium.com/@theinnovagroup
 https://share.google/yqCWuWmQghJfY4DO2
 https://youtube.com/@theinnovagroup405?si=v4t1JuEGMVdpJjXC
+https://medium.com/@theinnovagroup/how-the-innova-group-uses-disc-coaching-to-build-stronger-leaders-teams-and-cultures-3bd29226c36a?postPublishedType=initial
 https://theinnovagroup.blogspot.com/
 https://www.instagram.com/theinnovagroup/
 https://issuu.com/innovagroup/docs/the_innova_group_company_overview_and_services
