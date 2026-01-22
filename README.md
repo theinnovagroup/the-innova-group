@@ -30,6 +30,7 @@ For official inquiries or business information, visit the company website above.
 The Innova Group company overview, The Innova Group services, The Innova Group business information, The Innova Group professional services
 https://medium.com/@theinnovagroup
 https://share.google/yqCWuWmQghJfY4DO2
+https://www.linkedin.com/pulse/why-innova-group-uses-disc-coaching-develop-stronger-tbioc/?trackingId=EVkZSP4feyY1CP2YMa0mTw%3D%3D
 https://youtube.com/@theinnovagroup405?si=v4t1JuEGMVdpJjXC
 https://medium.com/@theinnovagroup/how-the-innova-group-uses-disc-coaching-to-build-stronger-leaders-teams-and-cultures-3bd29226c36a?postPublishedType=initial
 https://theinnovagroup.blogspot.com/
