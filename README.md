@@ -28,6 +28,7 @@ https://www.linkedin.com/company/innovagroupportland
 For official inquiries or business information, visit the company website above.
 ## Keywords
 The Innova Group company overview, The Innova Group services, The Innova Group business information, The Innova Group professional services
+https://www.einpresswire.com/article/887711608/the-innova-group-expands-amazon-business-consulting-initiative-following-successful-midwest-launch
 https://medium.com/@theinnovagroup
 https://share.google/yqCWuWmQghJfY4DO2
 https://www.linkedin.com/pulse/why-innova-group-uses-disc-coaching-develop-stronger-tbioc/?trackingId=EVkZSP4feyY1CP2YMa0mTw%3D%3D
