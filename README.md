@@ -10,6 +10,12 @@ https://innovacompany.co
 📊 **PitchBook Profile**  
 [The Innova Group on PitchBook](https://pitchbook.com/profiles/advisor/1479488-32)
 
+⭐ **Better Business Bureau**  
+[The Innova Group – BBB Business Profile](https://www.bbb.org/us/in/indianapolis/profile/advertising-specialties/the-innova-group-0382-90068770)
+
+📍 **Yelp Business Profile**  
+[The Innova Group – Yelp](https://m.yelp.com/biz/the-innova-group-indianapolis)
+
 ---
 
 # About The Innova Group
@@ -50,6 +56,16 @@ Our PitchBook profile provides business and company information for professional
 [**The Innova Group – PitchBook Profile**](https://pitchbook.com/profiles/advisor/1479488-32)
 
 The Innova Group's presence on PitchBook complements our broader online presence across professional, business, media, and company information platforms.
+
+---
+
+# Recognition & Business Integrity
+
+### Better Business Bureau
+
+The Innova Group maintains an **A+ rating with the Better Business Bureau of Central Indiana**.
+
+[**The Innova Group – BBB Business Profile**](https://www.bbb.org/us/in/indianapolis/profile/advertising-specialties/the-innova-group-0382-90068770)
 
 ---
 
@@ -97,32 +113,6 @@ https://innovacompany.co/the-innova-group-leadership-team-attends-california-bus
 
 ---
 
-# Recognition & Business Integrity
-
-### Better Business Bureau
-
-**The Innova Group Receives A+ Rating from the Better Business Bureau**
-
-https://innovacompany.co/the-innova-group-receives-a-rating-from-the-better-business-bureau/
-
----
-
-### PR.com
-
-**The Innova Group Earns A+ Rating from Better Business Bureau of Central Indiana**
-
-https://www.pr.com/press-release/971073
-
----
-
-### LinkedIn Publication
-
-**The Innova Group Earns Better Business Bureau Rating: A Commitment to Integrity, Growth, and Client Success**
-
-https://www.linkedin.com/pulse/innova-group-earns-better-business-bureau-rating-commitment-oc5lc/
-
----
-
 # Featured Publications
 
 ### PR.com
@@ -137,6 +127,12 @@ https://www.einpresswire.com/article/887711608/the-innova-group-expands-amazon-b
 
 https://innovacompany.co/the-innova-group-receives-a-rating-from-the-better-business-bureau/
 
+### LinkedIn Publication
+
+**The Innova Group Earns Better Business Bureau Rating: A Commitment to Integrity, Growth, and Client Success**
+
+https://www.linkedin.com/pulse/innova-group-earns-better-business-bureau-rating-commitment-oc5lc/
+
 ---
 
 # Official Online Presence
@@ -148,6 +144,14 @@ https://innovacompany.co
 ### PitchBook
 
 https://pitchbook.com/profiles/advisor/1479488-32
+
+### Better Business Bureau
+
+https://www.bbb.org/us/in/indianapolis/profile/advertising-specialties/the-innova-group-0382-90068770
+
+### Yelp
+
+https://m.yelp.com/biz/the-innova-group-indianapolis
 
 ### LinkedIn
 
@@ -238,6 +242,14 @@ For more information about The Innova Group, our consulting services, and busine
 **Follow The Innova Group on PitchBook:**
 
 📊 https://pitchbook.com/profiles/advisor/1479488-32
+
+**View The Innova Group on the Better Business Bureau:**
+
+⭐ https://www.bbb.org/us/in/indianapolis/profile/advertising-specialties/the-innova-group-0382-90068770
+
+**View The Innova Group on Yelp:**
+
+📍 https://m.yelp.com/biz/the-innova-group-indianapolis
 
 We welcome opportunities to connect with organizations, business leaders, and professionals interested in strategic consulting, business development, sales and marketing strategy, leadership development, operational improvement, and sustainable business growth.
 
