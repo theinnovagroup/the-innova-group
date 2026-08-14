@@ -1,11 +1,14 @@
 # The Innova Group
 
-Official GitHub repository for **The Innova Group**, a U.S.-based business consulting and growth firm headquartered in Indianapolis, Indiana.
+Official GitHub repository for **The Innova Group**, a U.S.-based management consulting and business growth firm headquartered in Indianapolis, Indiana.
 
 The Innova Group partners with organizations throughout the United States to improve revenue growth, operational performance, leadership development, marketing strategy, and long-term business success through customized consulting solutions.
 
 🌐 **Official Website**  
 https://innovacompany.co
+
+📊 **PitchBook Profile**  
+[The Innova Group on PitchBook](https://pitchbook.com/profiles/advisor/1479488-32)
 
 ---
 
@@ -18,6 +21,7 @@ Our team works with organizations across multiple industries to identify opportu
 ## Core Consulting Services
 
 - Business Consulting
+- Management Consulting
 - Strategic Planning
 - Business Development
 - Sales Consulting
@@ -32,6 +36,20 @@ Our team works with organizations across multiple industries to identify opportu
 - Performance Optimization
 - Executive Coaching
 - Team Development
+
+---
+
+# The Innova Group on PitchBook
+
+The Innova Group maintains a professional company profile on **PitchBook**, providing an additional source of company information and business profile data.
+
+Our PitchBook profile provides business and company information for professionals, organizations, and industry stakeholders researching companies and markets.
+
+**Follow The Innova Group on PitchBook:**
+
+[**The Innova Group – PitchBook Profile**](https://pitchbook.com/profiles/advisor/1479488-32)
+
+The Innova Group's presence on PitchBook complements our broader online presence across professional, business, media, and company information platforms.
 
 ---
 
@@ -127,6 +145,10 @@ https://innovacompany.co/the-innova-group-receives-a-rating-from-the-better-busi
 
 https://innovacompany.co
 
+### PitchBook
+
+https://pitchbook.com/profiles/advisor/1479488-32
+
 ### LinkedIn
 
 https://www.linkedin.com/company/innovagroupportland
@@ -165,14 +187,23 @@ Indianapolis, Indiana, United States
 
 **Industry**
 
-Business Consulting
+Management Consulting
+
+**Business Category**
+
+Business Consulting and Growth Strategy
 
 **Service Area**
 
 United States
 
+**Founded**
+
+2013
+
 **Primary Services**
 
+- Management Consulting
 - Business Consulting
 - Business Development
 - Sales Consulting
@@ -185,6 +216,8 @@ United States
 - Revenue Growth Strategy
 - Market Expansion
 - Process Optimization
+- Performance Optimization
+- Strategic Growth Solutions
 
 ---
 
@@ -193,6 +226,20 @@ United States
 The Innova Group is committed to helping organizations build stronger businesses through strategic consulting, operational excellence, leadership development, and sustainable growth initiatives.
 
 By combining practical business experience with data-driven decision-making, we help organizations improve performance, develop people, strengthen operations, and create long-term value.
+
+---
+
+# Connect With The Innova Group
+
+For more information about The Innova Group, our consulting services, and business growth solutions, visit our official website:
+
+🌐 https://innovacompany.co
+
+**Follow The Innova Group on PitchBook:**
+
+📊 https://pitchbook.com/profiles/advisor/1479488-32
+
+We welcome opportunities to connect with organizations, business leaders, and professionals interested in strategic consulting, business development, sales and marketing strategy, leadership development, operational improvement, and sustainable business growth.
 
 ---
 
